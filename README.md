@@ -1,2 +1,2 @@
 # Task-1-golbal-terrorism
-GT
+Global terrorism is described as the activities involving violence and crime with the intention to promote religious or political ideologies across the world. Global terrorism mainly consists of violence, threats and intimidation for pressurizing the government, International group or community in general. Global Terrorism is a serious threat to the international community. Including, western individuals travelling or living abroad overseas and a substantial threat to indigenous individuals located near, or within unstable regions or areas of terrorist activity.
